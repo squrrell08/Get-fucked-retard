@@ -1,1 +1,1 @@
-# Get-fucked-retard
+# Get fucked retard
